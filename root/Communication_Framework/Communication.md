@@ -8,6 +8,10 @@ This curated list is especially useful for:
 - Software Engineers and Data Professionals preparing for interviews
 - Team Leads and Managers improving leadership communication
 - Anyone wanting to become a confident speaker and presenter
+  
+https://www.youtube.com/watch?v=FsxorSNJBaA
+
+https://www.youtube.com/watch?v=19TcEwPEFMU
 
 ---
 
